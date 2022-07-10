@@ -1,1 +1,0 @@
-# ArjsGeoMechDroneSampleklf1r
